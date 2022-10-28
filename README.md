@@ -1,5 +1,4 @@
-Privacy Policy of Attified Designs
-Attified Designs operates the attifieddesigns.com website, which provides the SERVICE.
+Attified Designs creates apps, which provides the SERVICE.
 
 This page is used to inform website visitors regarding our policies with the collection, use, and disclosure of Personal Information if anyone decided to use our Service, the Attified Designs website.
 
